@@ -1,8 +1,6 @@
-- 👋 Hi, I’m @Aknc34
-all sites are our area of interest.
-You can contact us.
-cengizakinci90@gmail.com
-<!---
-Aknc34/Aknc34 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+CengizAknc34
+Ağ toplama verileri, Beta verileri, Dijital depo,
+Bizimle iletişime geçebilirsiniz.
+Cengizakinci90@gmail.com
++905418444217
+https://twitter.com/CengizAknc34
