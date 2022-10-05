@@ -2,14 +2,23 @@
 Bulut depo kiralama ve  satın alımları, Beta verileri,
 Yazılım programları 
 Githup.com
+Aknc34
+CengizAknc
+
+
+Kimlik, Web site vb.QR ve Barkod oluşturmak
 
 
 
-Kimlik, Web site vb.QR ve Barkod oluşturma 
+
+Daha bir çok konu hakkında Bizimle iletişime geçebilirsiniz. 
 
 
 
-ve daha bir çok konuda yardımcı olabiliriz
+
+
+
+Githup.bulutdp@icloud.com 
 
 
 
