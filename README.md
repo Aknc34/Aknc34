@@ -1,7 +1,7 @@
-CengizAknc34
-Ağ toplama verileri, Beta verileri,
-Dijital depo, Ağ izinleri,
-QR ve Barkod 
+
+Bulut depo kiralama ve  satın alımları, Beta verileri,
+Ağ izinleri,
+Kimlik, Web site vb.QR ve Barkod oluşturma 
 Bizimle iletişime geçebilirsiniz.
 
 CengizAknc@Githupcom.onmicrosoft.com
