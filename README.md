@@ -2,11 +2,13 @@
 
 
 
+Veri Depolama - Ağ Platform - Kod yazılımı
 
-Güvenle ulaşabilir bağlantı kurabilirsiniz.
-Aknc34 
+Data Scientist - App Oluşturma 
 
 Bizimle iletişime geçebilirsiniz.
-CengizAknc@Githupcom.onmicrosoft.com
 
-+905418444217
++1 256-669-0745
+
++90 541 844 4217
+
